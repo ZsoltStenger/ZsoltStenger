@@ -2,8 +2,7 @@
 
 ---
 
-## I'm a Photographer, Woodworker, Developer, 
-Dreamer and a lucky person to live on this planet!!
+## I'm a Photographer, Woodworker, Developer and a lucky person to live on this planet!!
 
 - 👯 I’m looking forward to collaborate with you
 - 🌱 I’m currently learning everything 🤣
